@@ -1,2 +1,52 @@
 # hello-WARUDO
 TOMARE WO TOKI YO!
+One second has passed...
+Two seconds have passed...
+
+Billthetaxattourney had no idea where this branch went!
+All that  he thought was "If I see hello world, I might bust a vein!"
+Billthetaxattourney readied himself, thinking that when he sees hello world again,
+he'll drive Star Python's fists right through him, in the two seconds he's able to move!
+
+Three seconds have passed...
+Four seconds have passed...
+Five seconds have passed...
+Six seconds have passed...
+Seven seconds have passed!
+...
+...
+
+ROADA ROLLA DA!
+ORA ORA ORA ORA ORA ORA ORA 
+ORA ORA ORA ORA ORA ORA ORA 
+ORA ORA ORA ORA ORA ORA ORA 
+ORA ORA ORA ORA ORA ORA ORA 
+ORA ORA ORA ORA ORA ORA ORA 
+ORA ORA ORA ORA ORA ORA ORA 
+
+YOU'RE TOO LATE!
+MUDA MUDA MUDA MUDA MUDA MUDA 
+MUDA MUDA MUDA MUDA MUDA MUDA
+MUDA MUDA MUDA MUDA MUDA MUDA 
+MUDA MUDA MUDA MUDA MUDA MUDA
+MUDA MUDA MUDA MUDA MUDA MUDA 
+MUDA MUDA MUDA MUDA MUDA MUDA
+MUDA MUDA MUDA MUDA MUDA MUDA 
+MUDA MUDA MUDA MUDA MUDA MUDA
+MUDA MUDA MUDA MUDA MUDA MUDA 
+MUDA MUDA MUDA MUDA MUDA MUDA
+MUDA MUDA MUDA MUDA MUDA MUDA 
+MUDA MUDA MUDA MUDA MUDA MUDA
+MUDA MUDA MUDA MUDA MUDA MUDA 
+MUDA MUDA MUDA MUDA MUDA MUDA
+MUDA MUDA MUDA MUDA MUDA MUDA 
+MUDA MUDA MUDA MUDA MUDA MUDA
+MUDA MUDA MUDA MUDA MUDA MUDA 
+MUDA MUDA MUDA MUDA MUDA MUDA
+MUDA MUDA MUDA MUDA MUDA MUDA 
+MUDA MUDA MUDA MUDA MUDA MUDA
+WWWWWWWWWWWWWWWWWWWWWWWWWWWWW
+RRRRRRRRRRRRRRRRRRRRRRRRRRRRR
+YYYYYYYYYYYYYYYYYYYYYYYYYYYYY!
+
+I've won...
