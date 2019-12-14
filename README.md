@@ -1,0 +1,2 @@
+# hello-WARUDO
+TOMARE WO TOKI YO!
